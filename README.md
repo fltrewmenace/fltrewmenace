@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning MORE
 - 💞️ I’m looking to collaborate on MORE
 - 📫 How to MORE
-- 😄 9
+- 🔥 9
 - ⚡ Fun fact: FACTS ARE FUN.
 
 <!---
